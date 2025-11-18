@@ -1,0 +1,1 @@
+# MAGIX-VEGAS-Pro-No-Trial
